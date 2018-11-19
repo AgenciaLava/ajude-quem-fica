@@ -1,12 +1,12 @@
 O Brasil vive hoje os efeitos da maior crise econômica das últimas décadas. E as eleições de 2018 trouxeram ainda mais desequilíbrio para uma nação instável.
 
-Com o resultado das eleições, muitos brasileiros acreditam que a única oportunidade para uma vida melhor é mudar para outro país. Porém, a maioria dos brasileiros não têm poder aquisitivo e recursos para emigrar.
+Com o resultado das eleições, muitos brasileiros apostam que futuro presidente solucionará o problema econômico (entre outros) e esperam aciosamente 2019. Outros acreditam que a única oportunidade para uma vida melhor é mudar para outro país.
 
-A grande verdade é que aqueles que ficarem no país, seja por vontade própria ou não, serão responsáveis por reerguer e reconstruir uma nação dividida por ideologias, preconceitos, extremismos e, muitas vezes, ódio. Felizes ou não com o nosso governo atual ou o que há de vir, esses cidadãos terão um grande tarefa à frente.
+A grande verdade é que aqueles que ficarem no país, seja por vontade própria ou não, serão responsáveis por reerguer e reconstruir uma nação dividida por ideologias, preconceitos, extremismos e, muitas vezes, ódio. Felizes ou não com o nosso governo atual ou o que há de vir, esses cidadãos terão um grande tarefa à frente. Mas nosso papel de cidadão não pode parar no voto!
 
 Nós, do Ajude Quem Fica, somos brasileiros que acreditam em um Brasil de oportunidades, no qual empatia, compaixão, caridade e respeito serão essenciais para regenerar nosso país. Sem associação a entidades religiosas, partidos ou movimentos políticos, buscamos praticar a bondade, sem preconceitos e sem restrições. Temos certeza de que vale a pena lutar pelo povo brasileiro e temos esperança em um Brasil melhor, construído pela união dos cidadãos.
 
-Junte-se a nós nesse movimento em prol dos brasileiros que estão e ficarão no Brasil, independente de quem ocupa ou ocupará a presidência do Brasil. Ajude aqueles que sofrem diariamente com preconceitos, injustiças e desigualdades. Seu poder como cidadão vai muito além de um voto!
+Junte-se a nós nesse movimento em prol dos brasileiros que estão e ficarão no Brasil, independente de quem ocupa ou ocupará a presidência do Brasil. Ajude aqueles que sofrem diariamente com preconceitos, injustiças e desigualdades. **Seu poder como cidadão vai muito além de um voto!**
 
 Colabore com o nosso projeto e vamos  mostrar ao mundo que nós, brasileiros, podemos ser, acima de tudo, um povo generoso!
 
@@ -34,7 +34,7 @@ Além de reunir pessoas que estejam determinadas a ajudar o Brasil, independente
 
 ## Gostou das ideias da nossa campanha? Quer nos ajudar?
 
-Se você gostou das ideias do Ajude Quem Fica, a ajuda mais simples é doar algum valor aqui na página da campanha.
+Se você gostou das ideias do Ajude Quem Fica, a ajuda mais simples é doar algum valor aqui na página da campanha. Só precisamos de 500 pessoas doando somente R\$10 para atingirmos nossa meta inicial!
 
 *Você sabia que com R\$100 você poderia prover **100** refeições para moradores de rua no restaurante Bom Prato? E com o mesmo valor você poderia prover **200** cafés-da-manhã para moradores de rua, no mesmo restaurante?*
 
@@ -54,13 +54,13 @@ Quer fazer mais além de doar dinheiro? Entre em contato conosco através [deste
 
 Brazil is currently going through the greatest economic crisis of the last decades. And 2018 elections brought even more imbalance to an unstable nation.
 
-With the results of 2018 elections, many Brazilians believe that the only opportunity for a better life is to move to another country. However, most Brazilians do not have resources to do that.
+With the result of the elections, many Brazilians bet that the future president will solve the economic problem (among others). Others believe that the only opportunity for a better life is to move to another country.
 
 The truth is that those who’ll stay in the country – whether by choice or not – will be responsible for rebuilding a nation divided by ideologies, prejudices, extremism and, often, hatred. These citizens will have a great task ahead, no matter who will be leading the county in 2019.
 
 We – the contributors of Ajude Quem Fica – believe in a country full of opportunities, in which empathy, compassion, charity and respect will be essential to heal the nation. With no associations with religious entities, political parties or movements, we seek to help others with no prejudice and no restrictions. We firmly believe it is worth fighting for the Brazilian people. We have hope in a better country with all citizens united.
 
-Join us on this campaign to help those who suffer daily from prejudice, injustice and inequality. Let’s leave politics aside for a minute and help another human being. We have much more power to change the country (and the world!) if we work together!
+Join us on this campaign to help those who suffer daily from prejudice, injustice and inequality. Let’s leave politics aside for a minute and help another human being. We have much more power to change the country (and the world!) if we work together! **Your power as a citizen goes far beyond a vote!**
 
 Help us shape the future of Brazil, no matter who holds the presidency! Brazil is a rich country which still suffers from a huge social inequality and we can’t just count on a government to fix all the issues.
 
@@ -88,7 +88,7 @@ Apart from bringing together people who are determined to help shaping Brazil’
 
 ## Did you like the ideas of our campaign? Want to help us?
 
-If you liked our ideas and goals, help us donating some value in this page. Follow [these guidelines](http://bit.ly/how-to-donate-ajude-quem-fica) as there isn’t an English version for this website. You’ll also need a [PayPal account](https://www.paypal.com/) to donate. Use this as a guide for the donation value:
+If you liked our ideas and goals, help us donating some value in this page. We need only 500 people donating just R\$10 to reach our initial goal! Follow [these guidelines](http://bit.ly/how-to-donate-ajude-quem-fica) as there isn’t an English version for this website. You’ll also need a [PayPal account](https://www.paypal.com/) to donate. Use this as a guide for the donation value:
 
 R\$100 is just about US26
 R\$100 is just about 23€
