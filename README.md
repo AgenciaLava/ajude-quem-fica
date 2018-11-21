@@ -20,11 +20,11 @@ Além de reunir pessoas que estejam determinadas a ajudar o Brasil, independente
 
 * Arrecadar o valor inicial de R\$5.000,00 que serão distribuídos para, no mínimo, 5 entidades de assistência social / instituições de caridade<sup>1</sup> pelo Brasil;
 
-* Promover, de modo transparente, a indicação de instituições de caridade<sup>2</sup> e votação para guiar a distribuição do valor arrecadado na campanha. A priori, queremos ajudar instituições preocupadas com problemas atuais imediatos, como fome e moradia, e também que preparem para o futuro por meio da educação e capacitação de pessoas;
+* Promover, de modo transparente, a indicação de instituições de caridade<sup>2</sup> e votação para guiar a distribuição do valor arrecadado na campanha. **A priori, queremos ajudar instituições preocupadas com problemas atuais imediatos, como fome e moradia, e também que preparem para o futuro por meio da educação e capacitação de pessoas**;
 
 * Criar um eBook sobre o Ajude Quem Fica, sobre as instituições beneficiadas, como o dinheiro distribuído foi aplicado e sobre o desfecho da campanha em geral;
 
-* Criar uma plataforma que faça a interface entre instituições de caridade e possíveis voluntário (sem a utilização dos recursos arrecadados nessa campanha).
+* Criar uma plataforma que faça a interface entre entidades de assistência social / instituições de caridade e possíveis voluntário (sem a utilização dos recursos arrecadados nessa campanha).
 
 ## Objetivos futuros (que dependem do valor arrecadado)
 
@@ -46,7 +46,7 @@ Quer fazer mais além de doar dinheiro? Entre em contato conosco através [deste
 
 <sup>1</sup> Ainda não temos uma lista de instituições porque desejamos que a escolha seja democrática e a indicação das instituições seja feita por aqueles que colaborarem com a campanha.
 
-<sup>2</sup> Você poderá registrar a indicação da instituição de caridade de sua escolha através de um formulário presente no texto de confirmação de sua doação.
+<sup>2</sup> Para **registar a indicação da instituição de caridade de sua escolha**, preencha este formulário http://bit.ly/registro-de-entidate-ajude-quem-fica.
 
 <sup>3</sup> Os dados foram publicados pelo IBGE em dezembro de 2017 e você pode baixar o eBook [aqui](https://biblioteca.ibge.gov.br/index.php/biblioteca-catalogo?view=detalhes&id=2101459). Esses dados são de 2016 e não queremos esconder isso. Mas são os dados oficiais mais recentes disponíveis nesse momento.
 
