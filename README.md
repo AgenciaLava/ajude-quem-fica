@@ -14,7 +14,7 @@ Colabore com o nosso projeto e vamos  mostrar ao mundo que nós, brasileiros, po
 
 ## Quais são os objetivos dessa campanha?
 
-Além de reunir pessoas que estejam determinadas a ajudar o Brasil, independente do resultado das eleições para presidência de 2018, e despertar a compaixão adormecida no coração de muitos brasileiros, temos as seguintes metas:
+Além de reunir pessoas que estejam determinadas a ajudar o Brasil, *independente do resultado das eleições para presidência de 2019*, e despertar a compaixão adormecida no coração de muitos brasileiros, temos as seguintes metas:
 
 ## Objetivos iniciais
 
