@@ -44,7 +44,7 @@ Gostou das ideias, mas o orçamento está todo comprometido esse mês? Não tem 
 
 Quer fazer mais além de doar dinheiro? Entre em contato conosco através [deste formulário](http://bit.ly/ajude-quem-fica-voluntario)! Atualmente estamos precisando especificamente de voluntários com conhecimento em divulgação em mídias sociais, design e captação e edição de vídeos!
 
-<sup>1</sup> Ainda não temos uma lista de instituições porque desejamos que a escolha seja democrática e a indicação das instituições seja feita por aqueles que colaborarem com a campanha.
+<sup>1</sup> Ainda não temos uma lista completa de instituições porque desejamos que a escolha seja democrática e a indicação das instituições seja feita por aqueles que colaborarem com a campanha. Essas são as duas instituições verificadas até então: http://lardatiaedna.com.br/ e https://www.facebook.com/projetoesperancabauru/
 
 <sup>2</sup> Para **registar a indicação da instituição de caridade de sua escolha**, preencha este formulário http://bit.ly/registro-de-entidate-ajude-quem-fica.
 
